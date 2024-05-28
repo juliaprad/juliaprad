@@ -7,4 +7,5 @@ Mewu nome é Julia Prado
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-https://media1.tenor.com/m/FWllOlQmk78AAAAd/ronaldo-cristiano-ronaldo.gif
+![](https://media1.tenor.com/m/PhMkIVN6jNQAAAAC/cristiano-ronaldo-madrid.gif)
+![](https://media1.tenor.com/m/qk1oqhEHF98AAAAC/vitor-sans.gif)
